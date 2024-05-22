@@ -2,6 +2,8 @@
 
 Estou em busca de oportunidades na área de tecnologia. Sou dedicado, analítico, organizado e tenho facilidade para trabalhar em equipe. Estou disponível para contribuir com minhas habilidades técnicas e conhecimentos em programação e segurança da informação.
 
+Instagram: jose.alves5677
+
 ### Cursos e Certificações
 
 2018 - Curso Online de Programação Python - 100 Hrs
