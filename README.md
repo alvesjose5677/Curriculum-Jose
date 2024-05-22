@@ -1,6 +1,4 @@
-# Curriculum
-
-José Alves Crispim
+# José Alves Crispim
 
 Rio de Janeiro - RJ 
 jose.alves5677@gmail.com |
